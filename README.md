@@ -1,16 +1,17 @@
-## Hi there 👋
+## Hi there! 👋
 
-<!--
-**nazarthecoolalt/nazarthecoolalt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+My Computers: windows 11
+My Email password: nk0636884817@gmail.com
+Like: Bonziworld, Roblox, Pizza Tower, And Game
 
-Here are some ideas to get you started:
+# Credits
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Rover the cool dog
+
+Luca
+
+MTV Dance
+
+**Swag Frenzy**/Jim Megatron
+
+Izhank216
